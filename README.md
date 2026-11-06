@@ -1,8 +1,12 @@
+<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/954537f6-703c-433b-9cfe-9ebd4a3ed442" />
+
+
 
 you reading this:
 
 <img width="922" height="681" alt="image" src="https://github.com/user-attachments/assets/3c177394-f777-407f-8507-a1a203d5f1ed" />
 
+“𝐢 𝐰𝐨𝐮𝐥𝐝 𝐭𝐚𝐤𝐞 𝐚𝐧𝐲𝐨𝐧𝐞! 𝐞𝐯𝐞𝐧 𝐭𝐡𝐚𝐭 𝐥𝐢𝐭𝐭𝐥𝐞 𝐦𝐚𝐢𝐥𝐦𝐚𝐧…
 
 heya im kris you can call me falcon if you want
 
