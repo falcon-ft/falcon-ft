@@ -28,4 +28,4 @@ main fandoms: deltarune, house.md, rick and morty, panties and stockings and und
 
 ——————˚₊‧꒰ა ♱ ໒꒱ ‧₊˚——————
 
-im random when it comes to music but i love Toby Fox music, and i like Cat Crash and some Cardigans songs
+im random when it comes to music but i love Toby Fox music and Weezer,and i like Cat Crash and some Cardigans songs
