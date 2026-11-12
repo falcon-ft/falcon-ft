@@ -15,7 +15,10 @@ you reading this:
 
 ——————˚₊‧꒰ა ♱ ໒꒱ ‧₊˚——————
 
+
+go sign my atabook NOW
 <https://falconft.atabook.org/?page=1>
+
 
 ——————˚₊‧꒰ა ♱ ໒꒱ ‧₊˚——————
 
