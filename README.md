@@ -32,7 +32,7 @@ pronouns: he/him and they/them
 
 ——————˚₊‧꒰ა ♱ ໒꒱ ‧₊˚——————
 
-main fandoms: deltarune, house.md, rick and morty, panties and stockings and undertale
+main fandoms: deltarune, house.md, heathers, rick and morty, panty and stockings, south park and undertale
 
 ——————˚₊‧꒰ა ♱ ໒꒱ ‧₊˚——————
 
